@@ -68,4 +68,4 @@ In a frenzy, he gathered me and some other board members and we drove to the nei
 Some scouts pooped on the campsmasters window, we drove over to them but the poop got smeared all over the window!
 
 
-rlelldflewrjtk'WEOJTAEKDJFAOIEWRHT;EWOAHFOEFEWA
+ [Previous](https://github.com/DeRooDirk/markdown-challenge) ------ [Next](https://github.com/Fran1409/markdown-challenge)

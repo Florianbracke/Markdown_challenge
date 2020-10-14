@@ -10,7 +10,7 @@ That's how the light gets in.”*
  <br>**Leonard Cohen**
 
 
-### Easily distracted as a fly on speed. <br> The fly is pretty fly though <br>
+### As easily distracted as a fly on speed. <br> The fly is pretty fly though <br>
 
 ![Photo of me](foto.jpg)
 <br>
@@ -45,8 +45,6 @@ I am also not much of an organizer but I rarely am in a bad mood!
 Thinking out side the box is a thing I feel good at but this feels like boasting so let's just see...
 
 I try to be myself and I hope that positivly reflects on other peoples comfort. Life is to short to waste it on embarrassment or prejudice or ...
-So in my "Utopia" everyone can just be themselves and we can all make it work. Let's atleast try :)  
-
 I live rather close to campus in a cosy co-housing so if that can be of any service, let me know! I was active (pre-corona) on [couchsurfing](https://www.couchsurfing.com/) so I really don't mind. 
 <br>
 <br>
